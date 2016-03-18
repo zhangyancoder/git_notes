@@ -10,3 +10,7 @@ artificial intelligence is like a train ,it is near when you hear the sound of t
 ***
 Never regret anything because at one time it was exactly what you wanted.
 ***
+life's a little bit messy, we all make mistake.No matter what type of animal you are, change starts with you.
+***
+go for someone who make you a smile because it takes only a smile to make a dark day seem bright.
+***
