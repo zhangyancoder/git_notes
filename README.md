@@ -14,3 +14,15 @@ life's a little bit messy, we all make mistake.No matter what type of animal you
 ***
 go for someone who make you a smile because it takes only a smile to make a dark day seem bright.
 ***
+I've learned that hard way.To never let it get that far.
+***
+whenever you feel like cirticzing any one, just remenber that all of people in this world haven't had the advantages that you've had.
+***
+cause there'll be no sunlight, if i lose you baby.cause there'll be no clear skies, if i lose you baby.
+***
+To be a person who know how to be silent and always keep aspiring.
+***
+Years wrinkle the skin, but to give up enthusiasm wrinkle the soul.
+***
+Be confident with yourself and stop worring what other people think.Do what's best for you future happiness.
+***
