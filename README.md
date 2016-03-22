@@ -26,3 +26,7 @@ Years wrinkle the skin, but to give up enthusiasm wrinkle the soul.
 ***
 Be confident with yourself and stop worring what other people think.Do what's best for you future happiness.
 ***
+There is no such thing as darkness, only a failure to see.
+***
+I am a slow walker, but i never walk backwards.
+***
