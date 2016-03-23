@@ -1,4 +1,4 @@
-# notes
+，# notes
 notes of my life
 ***
 we learn of let go of things and people that hurt us and just move on. 
@@ -29,4 +29,8 @@ Be confident with yourself and stop worring what other people think.Do what's be
 There is no such thing as darkness, only a failure to see.
 ***
 I am a slow walker, but i never walk backwards.
+*** 
+I don't want to be next Michael Jordan. I only want to be Kobe Bryant.
+***
+when you open the door in front of you, lose the way at your back. From the beginning of the end .you have only one way to go.
 ***
