@@ -34,3 +34,9 @@ I don't want to be next Michael Jordan. I only want to be Kobe Bryant.
 ***
 when you open the door in front of you, lose the way at your back. From the beginning of the end .you have only one way to go.
 ***
+Hold the greatest hope for the greatest efforts to prepare for the worst.
+***
+I believe i am
+Born as the bright summer flowers
+Do not withered undefeated fiery demon rule
+***
