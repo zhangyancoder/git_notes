@@ -40,3 +40,7 @@ I believe i am
 Born as the bright summer flowers
 Do not withered undefeated fiery demon rule
 ***
+Is life always this hard. or is it just when you are a kid? always like this.
+***
+The world makes way for the man who knows where he is going.
+***
