@@ -44,3 +44,11 @@ Is life always this hard. or is it just when you are a kid? always like this.
 ***
 The world makes way for the man who knows where he is going.
 ***
+A single hand that wipes tears during failures is much better than countless hands that come together to clap on success.
+***
+Beyond the door, there's peace I'm sure.And I know there's be no more, tears in heaven.
+***
+Yesterday is history, tomorrow is a mystery,but today is a gift, that is why it's called present.
+***
+Take off all your preppy clothes, you know you're not fooling anyone.
+***
