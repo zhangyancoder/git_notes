@@ -52,3 +52,7 @@ Yesterday is history, tomorrow is a mystery,but today is a gift, that is why it'
 ***
 Take off all your preppy clothes, you know you're not fooling anyone.
 ***
+You never know how strong you are in the future.
+***
+Persistence is common trait of anyone who has had a significant impact on the world.
+***
