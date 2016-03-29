@@ -56,3 +56,7 @@ You never know how strong you are in the future.
 ***
 Persistence is common trait of anyone who has had a significant impact on the world.
 ***
+Remember that the best relationship is one where your love for each other is greater then your need for each other.
+***
+A soldier would rather face a firing squad a thousand times over than just once have to look his own colleagues in the eye knowing he had failed them.
+***
