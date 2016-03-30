@@ -60,3 +60,7 @@ Remember that the best relationship is one where your love for each other is gre
 ***
 A soldier would rather face a firing squad a thousand times over than just once have to look his own colleagues in the eye knowing he had failed them.
 ***
+Music is the best school in life, and at the same time the best way for us to extricate ourselves from it.
+***
+The greatest contest is always with the enemy within,and that battleground can be the loneliest place on earth.
+***
