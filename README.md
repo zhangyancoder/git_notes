@@ -64,3 +64,7 @@ Music is the best school in life, and at the same time the best way for us to ex
 ***
 The greatest contest is always with the enemy within,and that battleground can be the loneliest place on earth.
 ***
+Real dream is the other shore of reality.
+***
+Learn the art of saying NO without felling the sense of guilty.
+***
