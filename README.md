@@ -66,13 +66,9 @@ The greatest contest is always with the enemy within,and that battleground can b
 ***
 Real dream is the other shore of reality.
 ***
-<<<<<<< HEAD
 Learn the art of saying NO without feeling the sense of guilty.
 ***
 Living without an aim is like sailing without a compass.
 ***
 Every man dies, not every man really lives.
-=======
-Learn the art of saying NO without felling the sense of guilty.
->>>>>>> d2137c9e417c6d85b987f109fc60daab951ce893
 ***
