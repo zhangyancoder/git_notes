@@ -1,4 +1,4 @@
-，# notes
+# notes
 notes of my life
 ***
 we learn of let go of things and people that hurt us and just move on. 
@@ -66,9 +66,9 @@ The greatest contest is always with the enemy within,and that battleground can b
 ***
 Real dream is the other shore of reality.
 ***
-Learn the art of saying NO without feeling the sense of guilty.
+Learn the art of saying NO without felling the sense of guilty.
 ***
-Living without an aim is like sailing without a compass.
+She is the one that you never forget, she is the heaven-sent angel you met.
 ***
-Every man dies, not every man really lives.
+All my life, l've only been pretending. Without me, his world will go on turning. A world that's full of happiness that I have never known.
 ***
