@@ -72,3 +72,7 @@ She is the one that you never forget, she is the heaven-sent angel you met.
 ***
 All my life, l've only been pretending. Without me, his world will go on turning. A world that's full of happiness that I have never known.
 ***
+The more we do, the more we can do. The busier we are, the more leisure we have.
+***
+And everytime I see you in my dreams, I see your face, it's haunting me.
+***
