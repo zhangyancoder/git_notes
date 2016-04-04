@@ -76,3 +76,7 @@ The more we do, the more we can do. The busier we are, the more leisure we have.
 ***
 And everytime I see you in my dreams, I see your face, it's haunting me.
 ***
+Sadness is easier because its surrender.
+***
+Love all, trust a few, do wrong to none.
+***
