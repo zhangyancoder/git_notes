@@ -80,3 +80,11 @@ Sadness is easier because its surrender.
 ***
 Love all, trust a few, do wrong to none.
 ***
+Time goes by so fast, people go in and out of your life. You must never miss the opportunity to tell these people how much they mean to you.
+***
+Don't know if we each have a destiny, or if we're all just floating around accidental-like on a breeze.
+***
+You can't have a better tomorrow if you don't stop thinking about yesterday.
+***
+We must hang together, or we'll be hanged separately.
+***
