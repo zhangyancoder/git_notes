@@ -88,3 +88,11 @@ You can't have a better tomorrow if you don't stop thinking about yesterday.
 ***
 We must hang together, or we'll be hanged separately.
 ***
+Have the courage to fail big and stick around. And let them wonder why you're smiling. That's success to me.
+***
+But all sunshine without shade, all pleasure without pain, is not life at all.
+***
+We've all got both light and dark inside of us. What matters is the part we choose to act on. That's who we really are.
+***
+The cloud stood humbly in a corner of the sky. The morning crowned it with splendor.
+***
