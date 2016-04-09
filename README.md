@@ -96,3 +96,7 @@ We've all got both light and dark inside of us. What matters is the part we choo
 ***
 The cloud stood humbly in a corner of the sky. The morning crowned it with splendor.
 ***
+I'm screamin out and my dream will be heard. They will not be pushed aside or worse.
+***
+Baby you've done enough that cut your breath.Don't beat yourself up don't need to turn so fast. Sometimes we come last but we did our best.
+***
