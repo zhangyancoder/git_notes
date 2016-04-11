@@ -100,3 +100,11 @@ I'm screamin out and my dream will be heard. They will not be pushed aside or wo
 ***
 Baby you've done enough that cut your breath.Don't beat yourself up don't need to turn so fast. Sometimes we come last but we did our best.
 ***
+When a man loves a woman, spend his very last time trying to hold on to what he needs. He'd give up all lover's comforts and sleep out in the rain.
+***
+Human life, like flood water and do not hear of islands and reefs, it is difficult to create beautiful waves.
+***
+Remember that happiness is a way of travel, not a destination.
+***
+We are all in the gutter, but some of us are looking at the stars.
+***
