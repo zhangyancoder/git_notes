@@ -108,3 +108,11 @@ Remember that happiness is a way of travel, not a destination.
 ***
 We are all in the gutter, but some of us are looking at the stars.
 ***
+Many people will walk in and out of your life, but only true friends will leave footprints in your heart.
+***
+Stay hungry,stay foolish.
+***
+You don't know how long I've waited for you. I'd rather die than stay away from you.
+***
+Smell the cheese often so you may know when it is getting old.
+***
