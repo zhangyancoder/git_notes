@@ -116,3 +116,7 @@ You don't know how long I've waited for you. I'd rather die than stay away from 
 ***
 Smell the cheese often so you may know when it is getting old.
 ***
+Generosity is giving more than you can, and pride is taking less than you need.
+***
+The quick brown fox jumps over a lazy dog.
+***
