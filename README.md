@@ -120,3 +120,19 @@ Generosity is giving more than you can, and pride is taking less than you need.
 ***
 The quick brown fox jumps over a lazy dog.
 ***
+I like the dreams of future better than the history of the past.
+***
+Which would be worse,to live as a monster or to die as a good man?
+***
+Well, life isn't always what one likes, isn't it?
+***
+I suddenly feel myself like a doll, acting all kinds of joys and sorrows. There are lots of shining siliery thread on my back,controling all my action.
+***
+Give me a whisper, and gice me a sigh. Give me a kiss before you tell me goodbye!
+***
+To lost in something you love is better than to win in something you hate.
+***
+I am a big believer that eventually everything comes back to you. You get back what you give out.
+***
+In the day of prosperity be joyful, but in the day of adversity consider.
+***
