@@ -136,3 +136,7 @@ I am a big believer that eventually everything comes back to you. You get back w
 ***
 In the day of prosperity be joyful, but in the day of adversity consider.
 ***
+How many loved your moments of glad grace, and loved your beauty with love false or true.
+***
+The human race has one really effective weapon, and that is laughter.
+***
