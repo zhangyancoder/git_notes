@@ -140,3 +140,7 @@ How many loved your moments of glad grace, and loved your beauty with love false
 ***
 The human race has one really effective weapon, and that is laughter.
 ***
+If you want to know why, there's a love that can not lie. Love is strong, it only cares for joyful giving.
+***
+The loneliest place on earth is looking in a mirror and being ashamed of who you see.
+***
