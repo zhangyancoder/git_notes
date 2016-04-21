@@ -144,3 +144,5 @@ If you want to know why, there's a love that can not lie. Love is strong, it onl
 ***
 The loneliest place on earth is looking in a mirror and being ashamed of who you see.
 ***
+People laugh and people cry. Some give up, some always try. Some say hi while some say bey. Some will gorget you but never will I.
+***
