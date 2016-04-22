@@ -146,3 +146,13 @@ The loneliest place on earth is looking in a mirror and being ashamed of who you
 ***
 People laugh and people cry. Some give up, some always try. Some say hi while some say bey. Some will gorget you but never will I.
 ***
+I was born with an enormous need for affection,and a terrible need to give it.
+***
+There is only one heroism in the world,to see the world as it is and to love it.
+***
+Do not argue with an idiot. He will drag you down to his level and beat you with experience.
+***
+I'm proud of my heart. It's been played, burned and broken, but it still works.
+***
+A reader lives a thousand lives before he dies. The man who never reads lives only one.
+***
