@@ -156,3 +156,11 @@ I'm proud of my heart. It's been played, burned and broken, but it still works.
 ***
 A reader lives a thousand lives before he dies. The man who never reads lives only one.
 ***
+Remembrance is a form of meeting. Forgetfulness is a form of freedom.
+***
+Some of us get dipped in flat, some in satin, some in gloss. But every once in a while you find someone who's iridescent, and when you do, nothing will ever compare.
+***
+Gravitation is not responsible for people falling in love.
+***
+The happiest people do not necessarily have the best of all. They simply appreciate what they find on their way.
+***
