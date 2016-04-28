@@ -164,3 +164,11 @@ Gravitation is not responsible for people falling in love.
 ***
 The happiest people do not necessarily have the best of all. They simply appreciate what they find on their way.
 ***
+Eat to live, but do not live to eat.
+***
+I cannot tell why this heart languishes in silence. It is for small needs it never asks, or knows or remembers.
+***
+The greatest use of life is to spend it for something that will outlast it.
+***
+There is more day to dawn. The sun is but a morning star.
+***
