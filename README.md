@@ -172,3 +172,7 @@ The greatest use of life is to spend it for something that will outlast it.
 ***
 There is more day to dawn. The sun is but a morning star.
 ***
+Do anything rather than marry without affection.
+***
+Build your own dreams, or someone else will hire you to build theirs.
+***
