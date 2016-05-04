@@ -176,3 +176,23 @@ Do anything rather than marry without affection.
 ***
 Build your own dreams, or someone else will hire you to build theirs.
 ***
+Desperado,oh, you ain't getting no younger, your pain and your hunger, they are driving you home.
+***
+It is truth universally acknowledged, that a single man in possession of a good fortune must be in want of a wife.
+***
+If you miss the train I'm on. You will know that I am gone. You can hear the whistle blow a hundred miles.
+***
+Happiness is different from pleasure. Happiness has something to do with struggling and enduring and accomplishing.
+***
+There is more day to dawn. The sun is but a morning star.
+***
+What is right to be done cannot be done too soon.
+***
+How do you say goodbye to someone you can't imagine living without?
+***
+Knowledge will give you power, but character respect.
+***
+They know not I knew thee.Who knew thee too well. Long, long shall I rue thee. Too deeply to tell.
+***
+Everything comes to you in the right moment. Be grateful.
+***
