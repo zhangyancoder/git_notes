@@ -196,3 +196,7 @@ They know not I knew thee.Who knew thee too well. Long, long shall I rue thee. T
 ***
 Everything comes to you in the right moment. Be grateful.
 ***
+Maybe there's something fate can't touch, fate doesn't control how easily you come to peace.
+***
+If you take time to realize what your dream is and what you really want in life, you have to realize that there is always work to do. and you want to be the hardest working person in whatever you do.
+***
