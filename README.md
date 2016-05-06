@@ -200,3 +200,7 @@ Maybe there's something fate can't touch, fate doesn't control how easily you co
 ***
 If you take time to realize what your dream is and what you really want in life, you have to realize that there is always work to do. and you want to be the hardest working person in whatever you do.
 ***
+There is no such thing as a great talent without great power.
+***
+Life's like a movie, write your own ending. Keep believing, keep retending.
+***
