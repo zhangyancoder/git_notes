@@ -204,3 +204,7 @@ There is no such thing as a great talent without great power.
 ***
 Life's like a movie, write your own ending. Keep believing, keep retending.
 ***
+That you must stay who you are. Not a perfect soldier, but a good man.
+***
+No matter what type of animal you are, change starts with you.
+***
