@@ -208,3 +208,11 @@ That you must stay who you are. Not a perfect soldier, but a good man.
 ***
 No matter what type of animal you are, change starts with you.
 ***
+I don't know why all the trees change in the fall. I know you're not scared of anything at all. Don't know if snow white's house is near or far away. But I know I had the best day with you today.
+***
+Youth fades. Love droops. The leaves of friendship fall. A mother's secret hope outlives them all.
+***
+Finders keepers, losers weepers.
+***
+The scabbard is content to be dull when it protects the keenness of the sword.
+***
