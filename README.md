@@ -216,3 +216,7 @@ Finders keepers, losers weepers.
 ***
 The scabbard is content to be dull when it protects the keenness of the sword.
 ***
+You are infinite. And on those keys,the music that you can make is infinite.
+***
+Energy and persistence conquer all things.
+***
