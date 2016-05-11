@@ -220,3 +220,7 @@ You are infinite. And on those keys,the music that you can make is infinite.
 ***
 Energy and persistence conquer all things.
 ***
+Everything's got a moral, if only you can find it .
+***
+Nothing seek, nothing find.
+***
