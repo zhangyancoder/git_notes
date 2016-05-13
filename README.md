@@ -224,3 +224,11 @@ Everything's got a moral, if only you can find it .
 ***
 Nothing seek, nothing find.
 ***
+He told me that that 'that' that that boy wrote was terrible.
+***
+He who seize the right moment, is the right man.
+***
+Death simles at us all. All a man can do is smiles back.
+***
+There are only two kinds of people who are really fassinating, people who know absolutely everything,and people who know absolutely nothing.
+***
