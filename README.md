@@ -232,3 +232,7 @@ Death simles at us all. All a man can do is smiles back.
 ***
 There are only two kinds of people who are really fassinating, people who know absolutely everything,and people who know absolutely nothing.
 ***
+Don't part with your illusions. When they are gone you may still exist, but you have ceased to live.
+***
+When a doctor doctors another doctor, does he doctor the doctored doctor the way the doctored doctor wants to be doctored?
+***
