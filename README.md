@@ -236,3 +236,11 @@ Don't part with your illusions. When they are gone you may still exist, but you 
 ***
 When a doctor doctors another doctor, does he doctor the doctored doctor the way the doctored doctor wants to be doctored?
 ***
+Not everybody could sail the ocean, but still we could share this dream.
+***
+The last thing you want is to look back on your life and wonder if only.
+***
+City lights shine on the harbour. Night has fallen down. Through the darkness, and the shadow, I will still go. Long long journey, through the darkness. Long long way to go.
+***
+World is a fine place and worth fighting for. I agree with the second part.
+***
