@@ -244,3 +244,7 @@ City lights shine on the harbour. Night has fallen down. Through the darkness, a
 ***
 World is a fine place and worth fighting for. I agree with the second part.
 ***
+Takng the dreams that made me up. And tearing them away. But the same love will take this heart that's barely beating. And fill it with hope beyond the starts.Only love.
+***
+The lake is like an open book, day like the steady gaze of a reader.
+***
